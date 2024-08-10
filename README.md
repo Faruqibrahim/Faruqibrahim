@@ -1,4 +1,4 @@
-Hi 👋 My name is Faruq Olamileekan Ibrahim
+Hi 👋 My name is Faruq Olamilekan Ibrahim
 =============================
 
 Software developer, Data analyst
